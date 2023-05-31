@@ -58,7 +58,7 @@ Las sequías convencionales son un proceso que surge de la interacción de vario
 
 ### El estudio
 
-Las sequias repentinas parecen surgir de olas de calor o vientos secos que alcanzan zonas de escasas precipitaciones. El grupo encargado del estudio reporta que, desde 1951, estas sequías parecen ir en aumento en regiones húmedas del planeta, como la selva amazónica o las junglas del sudeste asiático. La frecuencia de estas sequías repentinas resulta ser hasta tres veces mayor que en el resto del planeta. 
+Las sequias repentinas parecen surgir de olas de calor o vientos secos que alcanzan zonas de escasas precipitaciones. El grupo encargado del estudio reporta que, desde 1951, estas sequías parecen ir en aumento en regiones húmedas del planeta, como la selva amazónica o las junglas del s­udeste asiático. La frecuencia de estas sequías repentinas resulta ser hasta tres veces mayor que en el resto del planeta. 
 
 Ahora, globalmente la frecuencia también aumentó: en un 74% de la superficie del planeta dejando fuera a los polos. Entre los motivos se destacan: el descenso de las precipitaciones, la subida global de la temperatura y olas de calor más frecuentes, intensas y duraderas.
 
